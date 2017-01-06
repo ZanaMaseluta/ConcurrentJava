@@ -1,0 +1,1 @@
+Schoolwork. Several problems resolved
